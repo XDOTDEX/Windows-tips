@@ -24,3 +24,24 @@ https://github.com/XDOTDEX/Windows-tips/releases/tag/v1.05.6
 
 
 ![image](https://github.com/user-attachments/assets/07c38516-ede2-4e91-a842-ae6e87e1f1fe)
+
+
+
+
+service
+![image](https://github.com/user-attachments/assets/8e3ec6e4-1f34-4997-8c24-7566d044065a)
+
+![image](https://github.com/user-attachments/assets/fd9a1d08-765b-4244-b8e5-a2491efbde5e)
+
+![image](https://github.com/user-attachments/assets/66671152-bc7a-4a17-bc2d-a85f4df6795d)
+
+prefetch
+![image](https://github.com/user-attachments/assets/d6e374c8-d987-4c4d-baaa-c9d9aeab30c9)
+
+
+recent
+
+![image](https://github.com/user-attachments/assets/add20236-f558-4f61-98b6-6fd0af4d3c1c)
+
+
+
