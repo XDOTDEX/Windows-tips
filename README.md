@@ -27,7 +27,7 @@ https://github.com/XDOTDEX/Windows-tips/releases/tag/v1.05.6
 
 
 #2
-[DEE](https://chat.whatsapp.com/J32YeVvIBQu66tJMB0d8GG)
+[Dex](https://www.facebook.com/61556700146677)
 
 
 
